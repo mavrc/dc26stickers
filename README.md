@@ -4,4 +4,4 @@
 
 Vector art files contained within are licensed [CC-BY-SA](https://creativecommons.org/licenses/by-sa/4.0/) by mav. Make all the stickers you like. Enjoy.
 
-I would recommend [Sticker Mule](https://stickermule.com). I'm not getting any money from this or anything, they were just super nice and professional to me.
+Note that I used to have a recommend for Sticker Mule in here and I'd like to anti-recommend them at this point as they've been found to be MAGA people. I've heard many glowing reviews of StickerApp though I have not used them myself.
